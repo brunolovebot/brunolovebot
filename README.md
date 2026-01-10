@@ -1,3 +1,3 @@
-![Image](https://github.com/user-attachments/assets/f0e40808-e413-41ae-b588-3691912d6f8d)
+![Image](https://github.com/user-attachments/assets/deb7fffc-ac81-4cb5-8ebb-ee9303178bd4)
 
 ‎‎‎‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎‎ ‎ ‎ ‎‎‎‎ ‎ ‎‎‎  ‎ ‎‎‎‎ ‎ ‎‎‎‎‎‎ ‎ ‎‎‎  ‎‎‎ ‎ ‎‎‎‎‎‎ ‎ ‎‎‎  ‎‎‎ ‎ ‎‎‎[atabook](https://bella.atabook.org/)‎‎‎ ‎ ‎‎‎   [rentry](https://rentry.co/nothingoldstays)
