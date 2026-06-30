@@ -1,2 +1,6 @@
+_ _
+        
+       ᥥ ⑅ִ۫ ᩙᰰი    <:036_dns:1494380098709749954> ✿𓐇۪  설탕  
+       ˚ִִ𓈒  ղ𐐼m͟ꫀ ᣟ݂。𓈈ྀིྀ ˚ 𓏫
 
-<img width="500" height="279" alt="Image" src="https://github.com/user-attachments/assets/a97ac4fb-b3b1-417f-a1d2-b2c1fc6cb301" />
+_ _
